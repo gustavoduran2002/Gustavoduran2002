@@ -1,1 +1,1 @@
-### De tal manera amó Dios al mundo, que ha dado a su Hijo unigénito, para que todo aquel que en él cree no se pierda, sino que tenga vida eterna. Dios no envió a su Hijo al mundo para condenar al mundo, sino para que el mundo sea salvo por él. (Juan 3:16-17)
+### Welcome to my profile, thank you for your visit. :)
